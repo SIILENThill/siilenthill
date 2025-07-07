@@ -1,2 +1,12 @@
-![image](https://i.pinimg.com/236x/3c/21/eb/3c21eb9425ea823ae8fdb149067c6be8.jpg) . . . . . . . .. 
-![image](https://i.pinimg.com/236x/23/06/d7/2306d7877a013a0a54b6db2dbf2fdaf8.jpg)
+<div align="center">
+
+
+
+![](https://komarev.com/ghpvc/?username=SIILENThill&color=grey&label=✧&abbreviated=true)
+
+
+<p align="center"> <img width="390" src="https://i.pinimg.com/736x/bb/17/6c/bb176ca99725cf359c6f27de9de7d713.jpg"/>
+
+
+
+[rentry](https://rentry.co/eun-chann) ﾒ [pronounscc](https://pronouns.cc/@SILENTHILL) ﾒ [ata](https://maccieee.atabook.org/)
